@@ -1,0 +1,1 @@
+# modelsell-email-assets
